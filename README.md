@@ -13,7 +13,7 @@ Maga supporters, RFK jr glazers,
 Thin ice
 
 Problematic media, kennixon shippers,
-JFK x Lem Billings, JFKabe(if you're just shipping it for fun.. I'll let it kinda pass) 
+JFK x Lem Billings, JFKabe
 
 I have nothin to say here but
 
