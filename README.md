@@ -27,3 +27,6 @@ Have a Bobby Holidays ^>u<^
 
 Unban our boy earl :-:
 @earlforrestrosementioned github unban him bpleaeese
+
+<img width="1024" height="768" alt="1000059935" src="https://github.com/user-attachments/assets/e2c7da30-039b-4c13-8614-6044bb8fc862" />
+OMG WHAT DID THEY DO TO HIM
