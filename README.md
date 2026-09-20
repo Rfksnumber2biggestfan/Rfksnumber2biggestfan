@@ -35,3 +35,5 @@ Can we stop the RFK bullying
 
 RFK gifs cuz y not
 <img width="350" height="270" alt="1000062954" src="https://github.com/user-attachments/assets/a6394259-2728-4f9c-8b63-6b1188a2bbbb" />
+ <img width="369" height="278" alt="1000062962" src="https://github.com/user-attachments/assets/3a79a403-b9b8-4ed3-923a-8da192cda883" />
+<img width="280" height="390" alt="1000062961" src="https://github.com/user-attachments/assets/c98e53af-6c92-43ba-b242-2eb84edc8cbd" />
