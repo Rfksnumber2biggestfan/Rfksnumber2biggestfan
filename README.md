@@ -32,3 +32,6 @@ Unban our boy earl :-:
 OMG WHAT DID THEY DO TO HIM
 <img width="828" height="1187" alt="1000060986" src="https://github.com/user-attachments/assets/58be391a-8d1f-4fcb-9091-60a4c780eea4" />
 Can we stop the RFK bullying 
+
+RFK gifs cuz y not
+<img width="350" height="270" alt="1000062954" src="https://github.com/user-attachments/assets/a6394259-2728-4f9c-8b63-6b1188a2bbbb" />
